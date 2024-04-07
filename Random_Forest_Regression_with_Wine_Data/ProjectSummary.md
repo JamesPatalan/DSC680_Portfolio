@@ -1,4 +1,4 @@
-## Pop the cork!
+## Pop the Cork!
 
 Within the realm of oenology, the science of wine, the fusion of technology and tradition has
 given rise to a new era of analysis. Since winemakers first started crushing grapes, wine has been
